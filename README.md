@@ -1,3 +1,3 @@
-## Hi, I'm Omar
+## Hi, I'm Omar 👋
 
 
